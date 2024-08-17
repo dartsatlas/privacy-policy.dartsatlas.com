@@ -3,7 +3,7 @@
 Last modified: December 31, 2021
 
 ## Introduction
-Darts Atlas LLC (“Company” or “We”) respect your privacy and are committed to protecting it through our compliance with this policy.
+The Darts Atlas Corporation (“Company” or “We”) respect your privacy and are committed to protecting it through our compliance with this policy.
 This policy describes the types of information we may collect from you or that you may provide when you visit the website www.dartsatlas.com (our “Website”) and our practices for collecting, using, maintaining, protecting, and disclosing that information.
 
 This policy applies to information we collect:
